@@ -1,8 +1,7 @@
 README
 
 
-Day1-July 10(sun),2022 - Grate day.
-
+# Day1-July 10(sun),2022 - Grate day.
 ---
 
 Suuny all day,but a little rain in moring.
