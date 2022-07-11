@@ -1,12 +1,15 @@
 README
 
+# Day3-Jully 12(Tue),200 - 
+
+
+
 # Day2-Juyly 11(mon),2022 - Grate day,
 ---
 - sunny all day
 - I fround greate service  it is once presrbed medicrion reserivced online intervew.
 - This sevice used it not need to got hospital
-
-
+- I want to go okinawa with my family.
 
 
 # Day1-July 10(sun),2022 - Grate day,
