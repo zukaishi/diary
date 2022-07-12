@@ -1,7 +1,8 @@
 README
 
-# Day3-Jully 12(Tue),200 - 
-
+# Day3-Jully 12(Tue),2020 - 
+---
+今日は英語のレッスンを行った
 
 
 # Day2-Juyly 11(mon),2022 - Grate day,
