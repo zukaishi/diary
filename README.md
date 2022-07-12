@@ -1,8 +1,20 @@
 README
 
-# Day3-Jully 12(Tue),2020 - 
+# Day3-Jully 12(Tue),2020 - Grate day
 ---
-今日は英語のレッスンを行った
+- Sunny all day,but it is rain for night.
+- I learned English Lesson Today.
+- Decided to hold another interview before I get startd.
+- question of 3.
+- 1. have a another teacher?
+- 2. what menter mean?
+- 3. homework 
+- start full-scale once is satisfied with.
+- and work.Two things I was worried about were good results.
+- 今日は英語のレッスンを行った。本格的に始める前にもう一度面談を実施することにした
+- 質問したいことは3つ、他のコーチはいないのか？メンターってなんだ？宿題添削についてもっと詳しく
+- これに納得したら本格的に始める予定。
+- 仕事では、心配していた2つの大きな事が今日終わった。とても嬉しい。
 
 
 # Day2-Juyly 11(mon),2022 - Grate day,
