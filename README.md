@@ -1,6 +1,6 @@
 README
 
-# Day3-Jully 12(Tue),2020 - Grate day
+# Day3-Jully 12(Tue),202２ - Grate day
 ---
 - Sunny all day,but it is rain for night.
 - I learned English Lesson Today.
