@@ -3,7 +3,7 @@ README
 
 # Day4-July 14(Thu),2022 - Grate day　
 - Bad weather day, rain all day.
-- I don't wrote diary, because I had a drinking archool party at work.
+- I don't wrote diary, because I had a drinking archool party at work yesterday.
 - I should have continued every day.
 - 
 - 天気が悪く、1日雨が降っていた
