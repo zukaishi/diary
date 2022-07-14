@@ -1,6 +1,16 @@
 README
 
-# Day3-Jully 12(Tue),202２ - Grate day
+
+# Day4-July 14(Thu),2022 - Grate day　
+- Bad weather day, rain all day.
+- I don't wrote diary, because I had a drinking archool party at work.
+- I should have continued every day.
+- 
+- 天気が悪く、1日雨が降っていた
+- 昨日は会社で飲み会だったので日記を書くことができなかった。
+- 毎日続けないといけないのになぁ。
+
+# Day3-July 12(Tue),202２ - Grate day
 ---
 - Sunny all day,but it is rain for night.
 - I learned English Lesson Today.
