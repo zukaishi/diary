@@ -1,7 +1,7 @@
 README
 # Day5-july 15,2022(Friday)
 - sit,destination,stop,meet,pleasure,conversation,while
-- I usually work remote from home,but today I went to meet same time joined colleague have a archool.
+- I usually work remote from home,but today I went to meet same time joined colleague have alcohol.
 - The dinner was delicious,but the conversation while the party was even more enjoyable and I forgot about the time.
 - I was lucy enought to sit on the train on the way home,but an old lady appeared on the wy and I gave up my seet.
 - Since the destination was about 15 min away,I didn't  have any trouble;more importantly, I was pleasure to have  given up my seat.
