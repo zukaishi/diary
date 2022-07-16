@@ -1,4 +1,12 @@
 README
+
+# Day6-July 16,2022(Saturday)
+- 今日は朝から小学校で子供の授業参観と、夕方から元々通っていた幼稚園の夏祭りのイベントに参加
+- 夜はサウナと盛りだくさんな1日だった。
+- I went to my son's junir high school watch class and we went to the kindergardent's event.
+- last night,I went to the sauna,very busy day.
+- 
+
 # Day5-july 15,2022(Friday)
 - I usually work remote from home,but today I went to meet same time joined colleague have alcohol.
 - The dinner was delicious,but the conversation while the party was even more enjoyable and I forgot about the time.
