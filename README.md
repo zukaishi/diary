@@ -3,7 +3,7 @@ README
 # Day6-July 16,2022(Saturday)
 - 今日は朝から小学校で子供の授業参観と、夕方から元々通っていた幼稚園の夏祭りのイベントに参加
 - 夜はサウナと盛りだくさんな1日だった。
-- I went to my son's  school watch class and we went to the kindergardent's event.
+- I went to my son's elementary school classroom visitiation and we went to the kindergardent's event.
 - last night,I went to the sauna,very busy day.
 - 
 
