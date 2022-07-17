@@ -6,7 +6,7 @@ README
 - しかしダメだった、その代わりスイミングスクールに通う事を約束してもらった
 - I went to pool with my son at this morning.
 - I want to swim practice for son.
-- but, he don't swim. however we promise have to go to swiming school.
+- but, he don't swim. however we promise have to go to swimming school.
 - 
 
 # Day6-July 16,2022(Saturday)
