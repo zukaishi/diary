@@ -4,6 +4,10 @@ README
 - 今日は朝から息子とプールへ
 - 目的は息子が泳げるようにための特訓
 - しかしダメだった、その代わりスイミングスクールに通う事を約束してもらった
+- I went to pool with my son at this morning.
+- I want to swim practice for son.
+- but, he don't swim. however we promise have to go to swiming school.
+- 
 
 # Day6-July 16,2022(Saturday)
 - 今日は朝から小学校で子供の授業参観と、夕方から元々通っていた幼稚園の夏祭りのイベントに参加
