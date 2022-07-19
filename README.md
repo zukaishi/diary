@@ -1,10 +1,27 @@
 README
+
+# DAY9-JULY 19,2022(Tueseday)
+- dont' mind fancy celebrate theme park take me out to ask
+- 夏休みに入るので子供たちをどこかへ連れて行ってと妻から頼まれた
+- テーマパークだと、人が多すぎるので、花火大会に行くことにしよう
+- とてもファンシーな花火が見られる
+- My hasband asked me that so she take use out to theme park.
+- but thema park is very busy wherever We went to the fire festival.
+- there is very fancy flow fire.
+
+
 # Day8-July 18,2022(Monday)
 - とても良い1日だった
 - 甥っ子と姪っ子が家に遊びに来た
 - 水鉄砲を作る学校の宿題を終わらせに来たようだ
 - 息子も娘もとても楽しんで一緒に水遊びを行っていた
-- 
+- Day8-July 18,2022(Monday)
+- Very nice day.
+- My nephew and niece came to my house to play.
+- They came to finish their school homework of making water guns.
+- My son and daughter had a great time playing in the water with them.
+
+
 # Day7-July 17,2022(Sunday)
 - 今日は朝から息子とプールへ
 - 目的は息子が泳げるようにための特訓
