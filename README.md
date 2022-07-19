@@ -1,13 +1,13 @@
 README
 
 # DAY9-JULY 19,2022(Tueseday)
+- My hasband asked me that so she take use out to theme park.
+- but, theme park is very crowded so I planning want to the firework festival.
+- There is very fancy firework festival.
 - dont' mind fancy celebrate theme park take me out to ask
 - 夏休みに入るので子供たちをどこかへ連れて行ってと妻から頼まれた
 - テーマパークだと、人が多すぎるので、花火大会に行くことにしよう
 - とてもファンシーな花火が見られる
-- My hasband asked me that so she take use out to theme park.
-- but, theme park is very crowded so I planning want to the firework festival.
-- there is very fancy firework festival.
 
 
 # Day8-July 18,2022(Monday)
