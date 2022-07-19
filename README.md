@@ -6,8 +6,8 @@ README
 - テーマパークだと、人が多すぎるので、花火大会に行くことにしよう
 - とてもファンシーな花火が見られる
 - My hasband asked me that so she take use out to theme park.
-- but thema park is very busy wherever We went to the fire festival.
-- there is very fancy flow fire.
+- but, theme park is very crowded so I planning want to the firework festival.
+- there is very fancy firework festival.
 
 
 # Day8-July 18,2022(Monday)
