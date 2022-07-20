@@ -1,5 +1,14 @@
 README
 
+# Day10-Jury 20,2022(Wednseday)
+- Very busy day.
+- a lot of meetting　and a lot of thinking
+- buy, I went the sauna.
+- 
+- たくさんの会議があり、考えないといけないことも多くあった
+- しかし、サウナに行くことはできた
+- 
+
 # DAY9-JULY 19,2022(Tueseday)
 - My hasband asked me that so she take use out to theme park.
 - but, theme park is very crowded so I planning want to the firework festival.
