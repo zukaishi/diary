@@ -1,9 +1,9 @@
 README
 
 # Day10-Jury 20,2022(Wednseday)
-- Very busy day.
-- a lot of meetting　and a lot of thinking
-- buy, I went the sauna.
+- It was a very busy day.
+- I was many meeting and many think to think about.
+- buy, I able to go to the sauna.
 - 
 - たくさんの会議があり、考えないといけないことも多くあった
 - しかし、サウナに行くことはできた
