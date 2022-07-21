@@ -1,6 +1,11 @@
 README
+# Day11-July 21,2022(Thursday)
+- Greate day.
+- I had a headache yesterday,but I　healed  with medicine.
+- 朝から頭が痛かったが薬で治った
+ 
 
-# Day10-Jury 20,2022(Wednseday)
+# Day10-July 20,2022(Wednseday)
 - It was a very busy day.
 - I was many meeting and many think to think about.
 - buy, I able to go to the sauna.
@@ -9,7 +14,7 @@ README
 - しかし、サウナに行くことはできた
 - 
 
-# DAY9-JULY 19,2022(Tueseday)
+# DAY9-July 19,2022(Tueseday)
 - My hasband asked me that so she take use out to theme park.
 - but, theme park is very crowded so I planning want to the firework festival.
 - There is very fancy firework festival.
