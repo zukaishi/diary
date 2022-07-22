@@ -4,6 +4,7 @@ README
 - Great day.
 - I game me very nice english learn site via colleague.
 - I learn there she was like 'could you please' 
+- I gone to barber after work.
 
 # Day11-July 21,2022(Thursday)
 - Great day.
