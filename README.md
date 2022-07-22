@@ -2,7 +2,7 @@ README
 
 # Day12-July 22,2022(Friday)
 - Great day.
-- I gived english learn site
+- I game me very nice english learn site via colleague.
 - I learn there she was like 'could you please' 
 
 # Day11-July 21,2022(Thursday)
