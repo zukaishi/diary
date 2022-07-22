@@ -1,12 +1,12 @@
 README
 
 # Day12-July 22,2022(Friday)
-- Greate day.
-- I gived english lean site
-- I lean there she was like 'could you please' 
+- Great day.
+- I gived english learn site
+- I learn there she was like 'could you please' 
 
 # Day11-July 21,2022(Thursday)
-- Greate day.
+- Great day.
 - I had a headache yesterday,but I　healed  with medicine.
 - 朝から頭が痛かったが薬で治った
  
