@@ -1,9 +1,9 @@
 README
 
 # Day13-July 22,2022(Saturday)
-- Today is Graet day.
+- Today is Great day.
 - I done that I study online english learn.
-- today tearture is very fun.
+- today teacher is very fun.
 - after, i gone to the karaoke with my family.
 
 
