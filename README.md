@@ -1,6 +1,13 @@
 README
+# Day14-July 24,2022(Sunday)
+- Today is perfect day.
+- I gone near river with my family.
+- That river's water is very clean.
+- There are many children, many fish and many shrimp.
+- I and my family are very fun,but we are very tired.
 
-# Day13-July 22,2022(Saturday)
+
+# Day13-July 23,2022(Saturday)
 - Today is Great day.
 - I done that I study online english learn.
 - today teacher is very fun.
