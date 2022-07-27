@@ -1,5 +1,10 @@
 README
 
+# Day-July 27,2022(Wedseday)
+- Today is Great day.
+- I met a lot of colleague at company.
+- it's very fun.
+
 # Day15-July 25,2022(Monday)
 - Today is　training day.
 - I was bad feeling and headache.
