@@ -1,4 +1,16 @@
 README
+
+# Day-July 30,2022(Saturday)
+- it was great day yesterday.
+- my children were very enjoying.
+- and, I was very tired.
+- for that reason, I'm went to bed early.
+- what are you doing today?
+- I must work the document today at morning.
+- Have a nice day.
+- Regards,
+- hiro
+
 # Day-July 28,2022(Thursday)]
 - Today is Great day.
 - My task and My feeling is very good.
