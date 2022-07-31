@@ -1,5 +1,14 @@
 README
 
+# Day-July 31,2022(Sunday)
+- good morning.
+- it's might very hot today.
+- I'm sorry,　I can't contacted yesterday.
+- after work, I went to go the sushi shop  with my family.
+- I must go company  today too.
+- have a nice day.
+
+
 # Day-July 30,2022(Saturday)
 - it was great day yesterday.
 - my children were very enjoying.
