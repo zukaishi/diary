@@ -1,4 +1,8 @@
 README
+# Day-22-August 3,2022(Wenseday)
+- later is natural than good bye.
+- gained more knowledge.
+- 
 
 # Day21-August 2,2022(Tusesday)
 - It was Great Day.
