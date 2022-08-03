@@ -1,6 +1,13 @@
 README
 
-#Day20-August 1,2022(Monday)
+# Day21-August 2,2022(Tusesday)
+- It was Great Day.
+- I gone to the sauna and I'm happy with faminly.
+- I study English everyday.
+- We are not sick in the pandemic world.
+- 
+
+# Day20-August 1,2022(Monday)
 - Great day.
 - The task I was worried about has been completed.
 - It's great day too.
