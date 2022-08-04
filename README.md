@@ -2,7 +2,7 @@ README
 
 # Day-23August 4,2022(Thuseday)
 - What des MSG mean?
-- I'm not understand that it is tabista homework.
+- I'm not understand the tabista homework.
 - but very interesting.
 - more than continue.
 
