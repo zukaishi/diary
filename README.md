@@ -1,4 +1,11 @@
 README
+
+# Day-23August 4,2022(Thuseday)
+- What des MSG mean?
+- I'm not understand that it is tabista homework.
+- but very interesting.
+- more than continue.
+
 # Day-22-August 3,2022(Wenseday)
 - later is natural than good bye.
 - gained more knowledge.
