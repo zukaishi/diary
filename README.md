@@ -1,6 +1,14 @@
 README
 
-# Day-23August 4,2022(Thuseday)
+# Day-24-August 5,2022(Friday)
+- Today is great.
+- bacause, it is the Friday. 
+- one more, it is the Friday.
+- that's mean, I do wait firewok festival next day.
+- this is exiting.
+- I can't watting.
+
+# Day-23-August 4,2022(Thuseday)
 - What des MSG mean?
 - I'm not understand the tabista homework.
 - but very interesting.
