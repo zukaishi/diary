@@ -1,5 +1,10 @@
 README
 
+# Day-25-Augst 6-7,2022(Saturday,Sunday)
+- This weekend,I took a trip to show my hometown to my family.
+- I feel like I was able to resolve my past trauma.
+- My family seemed to have fun.
+
 # Day-24-August 5,2022(Friday)
 - TToday is great.
 - because, today is the Friday.
