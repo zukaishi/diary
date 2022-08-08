@@ -1,6 +1,19 @@
 README
 
-# Day-25-Augst 6-7,2022(Saturday,Sunday)
+# Day-26-August 8,2022(Monday)
+- 昨日は素晴らしい1日だった
+- 1日オフの日だったので、モンベルに買い物とサウナにいってきた
+- 新しいコップとシャツとズボンを買った
+- サウナは平日なのにそこそこ人がいた
+- 今週は木曜日も休みなので今日、明日を頑張ろう
+- Yesterday was great day.
+- I gone to sauna and montbell because it day was day off all day.
+- I bought a new mag cup,T-shirt and pants.
+- sauna was crowded nevertheless weekday.
+- This week of thursday is holiday why I will do my best.
+
+
+# Day-25-August 6-7,2022(Saturday,Sunday)
 - This weekend,I took a trip to show my hometown to my family.
 - I feel like I was able to resolve my past trauma.
 - My family seemed to have fun.
